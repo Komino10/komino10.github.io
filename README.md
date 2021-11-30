@@ -1,0 +1,1 @@
+# komino10.github.io
